@@ -1,0 +1,1 @@
+# ns-warehouse-forecast-2026
